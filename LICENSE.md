@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket automation-script with Polymarket new Automation Script: trade-sniping & high-frequency-trading. Featuring trade-sniping and high-frequency-trading,
 
 
 
